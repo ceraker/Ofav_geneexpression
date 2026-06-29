@@ -9,3 +9,11 @@ Meagan Beaver
 Khyara Perez
 
 Tommy Sah
+
+
+### Funding and support: 
+Prada Lab, URI
+
+UPRM, Isla Magueyes Laboratories
+
+Connecticut College Summer Science Research Institute 
