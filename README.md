@@ -3,6 +3,9 @@ Gene expression analysis comparing Orbicella faveolata microfragments and parent
 
 ### Research group: 
 Dr. Cassie Raker
+
 Meagan Beaver
+
 Khyara Perez
+
 Tommy Sah
